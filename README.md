@@ -14,7 +14,9 @@ Let us know that you would like to join our family and we will add you instantly
 
 The only restriction we impose is that your action or words must not hurt others. We do realize that sometimes one may get hurt unintentionally. It is important to realize that we are **One Big Family** and at the end of the day, Our purpose boils down to making everyone happy. Let us make our Planet Earth :earth_americas: a better place.
 
-We are working on a lot of stuff and we will help you to find an appropriate place in one or some of them. You can start working on your idea as well under our initiative and other members will join and help you. **Best of luck in improving the world.**
+We are working on a lot of stuff and we will help you to find an appropriate place in one or some of them. You can start working on your idea as well under our initiative and other members will join and help you.
+
+**Best of luck in improving the world.**
 
 ### We are looking forward towards enjoying with you. :wine_glass: :cake: :dancer: 
 
