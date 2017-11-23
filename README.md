@@ -1,2 +1,1 @@
-# Join_TEDxHQ
-Join our family!
+# Join TEDxHQ
