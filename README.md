@@ -38,4 +38,4 @@ We are working on a lot of stuff and we will help you to find an appropriate pla
 
 ### We are looking forward towards enjoying with you. :wine_glass: :cake: :dancer: 
 
-> **Ideas worth Spreading** :heart: **~TED**
+> **Ideas worth Spreading** :heart: **~TEDxHQ**
