@@ -6,9 +6,11 @@
 
 Our sole mission is to help you recognize your potential :muscle:  and purpose :musical_note:. We believe that everyone has a gift in himself or herself but are not able to see it. We will help you in every possible way. Just ask us! :heart_eyes: 
 
-Let us know that you would like to join our family and we will add you instantly. One possible way is to tell us through an issue [here](https://github.com/TEDxHQ/Join_TEDxHQ/issues) and adding yourself to the contributor list. You may, also, email **[0x48piraj](https://github.com/0x48piraj)**.
+Let us know that you would like to join our family and we will add you instantly. One possible way is to tell us through an issue [here](https://github.com/TEDxHQ/Join_TEDxHQ/issues) and adding yourself to the contributor list.
 
-### Some Issue TEMPLATES :
+You may, also, email **[0x48piraj](https://github.com/0x48piraj)**.
+
+### Some `ISSUE_TEMPLATES` :
 
 ---
 
