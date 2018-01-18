@@ -9,12 +9,13 @@ Our sole mission is to help you recognize your potential :muscle:  and purpose :
 Let us know that you would like to join our family and we will add you instantly. One possible way is to tell us through an issue [here](https://github.com/TEDxHQ/Join_TEDxHQ/issues) and adding yourself to the contributor list.
 
 You may, also, email **[0x48piraj](https://github.com/0x48piraj)**.
+#### Contact : **[LinkedIn](https://www.linkedin.com/in/0x48piraj/)** | **[Twitter](https://twitter.com/0x48piraj)** | **[Github](https://github.com/0x48piraj)**
+
+
 
 ### Some `ISSUE_TEMPLATES` :
 
 ---
-
-#### Contact : **[LinkedIn](https://www.linkedin.com/in/0x48piraj/)** | **[Twitter](https://twitter.com/0x48piraj)** | **[Github](https://github.com/0x48piraj)**
 
 Looking Forward, for learning, contributions and **helping this community** :wink: 
 
@@ -23,7 +24,6 @@ Looking Forward, for learning, contributions and **helping this community** :win
 Hey there!
 I would love to be a part of OpenGenus :smile:
 kindly add me to the organisation.
-#### Contact : **[LinkedIn](https://www.linkedin.com/in/0x48piraj/)** | **[Twitter](https://twitter.com/0x48piraj)** | **[Github](https://github.com/0x48piraj)**
 
 ---
 
