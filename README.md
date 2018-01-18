@@ -1,4 +1,4 @@
-# Join TEDxHQ
+# Join TEDxP
 
 ## One World, One Mission!
 
