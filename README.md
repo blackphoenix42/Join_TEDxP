@@ -22,7 +22,7 @@ Looking Forward, for learning, contributions and **helping this community** :win
 ---
 
 Hey there!
-I would love to be a part of OpenGenus :smile:
+I would love to be a part of **TEDxP** :smile:
 kindly add me to the organisation.
 
 ---
