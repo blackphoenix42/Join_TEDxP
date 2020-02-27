@@ -6,7 +6,7 @@
 
 Our sole mission is to help you recognize your potential :muscle:  and purpose :musical_note:. We believe that everyone has a gift in himself or herself but are not able to see it. We will help you in every possible way. Just ask us! :heart_eyes: 
 
-### Automated Membership : [Click Here](https://orgmanager.miguelpiedrafita.com/join/33922472)
+<!-- (Automated Membership : [Click Here](https://orgmanager.miguelpiedrafita.com/join/33922472)) -->
 
 Let us know that you would like to join our family and we will add you instantly. One possible way is to tell us through an issue [here](https://github.com/TEDxP/Join_TEDxP/issues) and adding yourself to the contributor list.
 
